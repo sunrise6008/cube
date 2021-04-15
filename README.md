@@ -21,7 +21,7 @@
 
   <br>
 
-  <a href="https://strixkingdom.blogspot.com/?m=0"><img src="https://1.bp.blogspot.com/-JR5aBCH3Wdc/YHh9oKUmZDI/AAAAAAAAAXk/t4ONqKKVy7YFBUXZd4IxgBZr6W0sYGokwCNcBGAsYHQ/w400-h300/Photo_1618509203801.png" alt="WEBSITE"></a>
+  <a href="https://youtu.be/gggpKJW-BxI"><img src="https://1.bp.blogspot.com/-JR5aBCH3Wdc/YHh9oKUmZDI/AAAAAAAAAXk/t4ONqKKVy7YFBUXZd4IxgBZr6W0sYGokwCNcBGAsYHQ/w400-h300/Photo_1618509203801.png" alt="CLICK HERE TO WATCH VIDEO"></a>
 
    <br>
 
